@@ -1,6 +1,6 @@
 ---
-title: Start of a new semester!!!
-date:2021-08-13
+title: Start of a new semester!!
+date: 2021-08-13
 ---
 <p>So the first week was pretty smooth(well, almost😅) and the courses seemed quite interesting.</p>
 
