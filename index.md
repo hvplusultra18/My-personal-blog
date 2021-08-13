@@ -1,6 +1,6 @@
 ---
-title: "....."
+title: "A broken resolution"
 ---
 
-Decided to check up on my blog atleast once a month so that I don't forget the domain name :p 
+Well, I know that I had decided to post something new once a month but apparently i forgot about the existence of my blog😅(a literal existntial crisis😋).
 ...
