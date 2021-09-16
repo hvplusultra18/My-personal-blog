@@ -1,6 +1,6 @@
 ---
-title: "A broken resolution"
+title: "A New Resolution"
 ---
 
-Well, I know that I had decided to post something new once a month but apparently i forgot about the existence of my blog😅(a literal existntial crisis😋).
+I know it's kind of late for a resolution(or too early😂), but after my minors I promise to blog atleast once a week(let's see how that turns out😅). Peace out✌
 ...
